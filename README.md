@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on building a better world
 - 📫 How to reach me ...
 - 😄 Pronouns: Ismael 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Energy Master
 
 <!---
 Iho82/Iho82 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
